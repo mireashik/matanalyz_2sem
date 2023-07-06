@@ -2,6 +2,14 @@
 
 ![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/48a0d5af-85d0-429c-9e0e-0256524ec7c6)
 
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/9fcf683b-92c2-4159-881e-33d58e845bd6)
+
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/97c2851d-5764-4bb3-82ae-7fb58c8a5422)
+
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/42c4afbd-4362-4673-8689-06aec72c1a98)
+
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/fd91d297-b928-4da5-b4d3-6777077939df)
+
 ### 1 вариант
 ![изображение](https://github.com/mireashik/matanalyz_2sem/assets/123753819/76938511-0435-46f1-b0b0-f4901eb2a986)
 
