@@ -10,6 +10,27 @@
 
 ![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/fd91d297-b928-4da5-b4d3-6777077939df)
 
+### Другие варианты
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/93b3fc97-5364-4b71-b41c-d05a72d02286)
+
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/960ef843-ea13-4778-af33-c151c2c0b21f)
+
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/9c42071f-7c32-4165-9e9a-b711d107d020)
+
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/4e217faf-f704-4673-a69c-81015c85ddbe)
+
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/d44ef968-ef26-4eef-a940-051ac737c2b3)
+
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/f0d5f989-b2f5-46df-88f0-1efc4fab9295)
+
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/71ffa53f-02ba-4bab-aea2-20965a44c8e4)
+
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/8881a4d0-6c96-4901-a0b5-e57f2188d6f7)
+
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/92773e11-3083-45c9-b649-53d38f20101c)
+
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/93339193-af06-4d11-92c5-ab2022032fef)
+
 ### 1 вариант
 ![изображение](https://github.com/mireashik/matanalyz_2sem/assets/123753819/76938511-0435-46f1-b0b0-f4901eb2a986)
 
