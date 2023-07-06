@@ -1,5 +1,7 @@
 ### Отдельное спасибо https://vk.com/ek3amp1ejke ([ссылка на статью](https://vk.com/@ek3amp1ejke-reshenie-biletov-matematicheskogo-analiza-2-semestr))
 
+![image](https://github.com/mireashik/matanalyz_2sem/assets/123753819/48a0d5af-85d0-429c-9e0e-0256524ec7c6)
+
 ### 1 вариант
 ![изображение](https://github.com/mireashik/matanalyz_2sem/assets/123753819/76938511-0435-46f1-b0b0-f4901eb2a986)
 
